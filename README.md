@@ -1,3 +1,3 @@
-### Hola soy Alma Grimberg :smile::+1:
-- 🌱 Estoy aprendiendo ... que es GitHub
-- ⚡ Cosas divertidas que hago ... es que mi papá me ayuda a aprender GitHub y a veces me rio 😄
+### Hi my name is Alma_GitHub :smile::+1:
+- 🌱 I like GitHub
+- ⚡ Funny things I do ... is that my dad helps me learn GitHub and sometimes I laugh😄
